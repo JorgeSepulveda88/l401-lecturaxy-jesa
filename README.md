@@ -9,3 +9,5 @@ Aprendizaje
 ## Observaciones
 
 Actividad en clases, junio 2026
+
+Jorge Sepulveda 
