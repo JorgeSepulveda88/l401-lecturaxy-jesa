@@ -11,3 +11,4 @@ Aprendizaje
 Actividad en clases, junio 2026
 
 Jorge Sepulveda 
+Póngame un 7
